@@ -1,0 +1,1 @@
+<img width="180" alt="Производство пленки ПЭТ" src="/upload/medialibrary/c3c/c3cd99dc49c79ef228b1561d27bf1325.jpg" height="180" title="Производство пленки ПЭТ">

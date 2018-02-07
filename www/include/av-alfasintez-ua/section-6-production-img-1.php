@@ -1,0 +1,1 @@
+<img width="180" alt="ВИКОРИСТАННЯ ПЛАСТІВЦІВ ПЕТ" src="/upload/medialibrary/a19/a1968943384e906c51a9900655618eec.jpg" height="180" title="ВИКОРИСТАННЯ ПЛАСТІВЦІВ ПЕТ">

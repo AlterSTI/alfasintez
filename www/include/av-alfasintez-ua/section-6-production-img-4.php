@@ -1,0 +1,1 @@
+<img width="180" alt="Виробництво упаковки" src="/upload/medialibrary/35b/35b390f899251f149b27d097fe61d77a.jpg" height="180" title="Виробництво упаковки">

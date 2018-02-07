@@ -1,0 +1,1 @@
+<img src="/upload/av-alfasintez/eggs.jpg" alt="" />

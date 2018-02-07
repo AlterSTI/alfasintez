@@ -1,0 +1,1 @@
+<span>PET film</span><img alt="Pet film" src="/upload/av-alfasintez/pet.jpg" title="Pet film">

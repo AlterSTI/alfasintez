@@ -1,0 +1,1 @@
+<img width="180" alt="Виробництво плівки ПЕТ" src="/upload/medialibrary/c3c/c3cd99dc49c79ef228b1561d27bf1325.jpg" height="180" title="Виробництво плівки ПЕТ">

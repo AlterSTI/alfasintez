@@ -1,0 +1,1 @@
+<span>Плівка PET</span><img alt="Плівка PET. Виробництво" src="/upload/medialibrary/235/2351ada259fe34924e99ccfa39e9fe5f.jpg" title="Плівка PET. Виробництво">

@@ -1,0 +1,1 @@
+<img alt="eggs pack" src="/upload/av-alfasintez/eggs.jpg" title="eggs pack">

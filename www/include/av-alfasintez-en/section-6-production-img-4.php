@@ -1,0 +1,1 @@
+<img width="180" alt="PACKAGING PRODUCTION" src="/upload/av-alfasintez/production_4.jpg" height="180" title="PACKAGING PRODUCTION ">

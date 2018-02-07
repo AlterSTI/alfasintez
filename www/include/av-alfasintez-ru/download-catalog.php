@@ -1,0 +1,1 @@
+<?/*<span class="green-border-btn download-file"><b><a href="/upload/av-alfasintez/catalog.pdf" target="_blank">СКАЧАТЬ КАТАЛОГ</a></b></span>*/?>

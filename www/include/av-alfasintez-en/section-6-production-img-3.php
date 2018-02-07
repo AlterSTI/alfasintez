@@ -1,0 +1,1 @@
+<img width="180" alt="PET FILM PRODUCTION" src="/upload/av-alfasintez/production_3.jpg" height="180" title="PET FILM PRODUCTION">

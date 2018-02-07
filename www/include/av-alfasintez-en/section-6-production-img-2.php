@@ -1,0 +1,1 @@
+<img width="180" alt="PET GRANULES" src="/upload/av-alfasintez/production_2.jpg" height="180" title="PET GRANULES">

@@ -1,0 +1,1 @@
+<img width="180" alt="Pet flakes" src="/upload/av-alfasintez/production_1.jpg" height="180" align="middle" title="Pet flakes">

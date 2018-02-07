@@ -1,0 +1,1 @@
+<img width="180" alt="Використання первинних пет гранул" src="/upload/medialibrary/8f4/8f480cc4e909b1ff245f54155163a628.jpg" height="180" title="Використання первинних пет гранул">

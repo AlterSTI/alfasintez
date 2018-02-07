@@ -1,0 +1,4 @@
+<p>
+	&nbsp; &nbsp; &nbsp;Alfa-Sintez LLC was established in 1998 and now it is the leader of the PET packaging production in the Ukrainian market. We successfully export our products to the countries of the former CIS and Europe. Our product is manufactured with using innovative Italian equipment that makes it possible to produce the highest quality packaging<br>
+	 &nbsp; We use innovations, modern technologies and the highest quality standards. Alfa-Sintez offers a wide range of products for companies, which are recognized in international market; as well as special projects, which are designed and manufactured in accordance with the individual needs of customers. If you need high quality products, we can help you!
+</p>

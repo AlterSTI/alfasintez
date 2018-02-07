@@ -1,0 +1,1 @@
+<span>Пленка PET</span><img alt="Пленка ПЭТ. Производство" src="/upload/medialibrary/235/2351ada259fe34924e99ccfa39e9fe5f.jpg" title="Пленка ПЭТ. Производство">
